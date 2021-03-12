@@ -8,4 +8,4 @@
 
 
 
-![Discord Badge](https://cdn.discordapp.com/attachments/816389632043647026/819908928283869244/a_5addc70deebcff805605d2ac9de8b008.gif)
+![Discord Badge](https://media.tenor.com/images/094b80b64e86b8648279408623a1e10d/tenor.gif)
