@@ -8,6 +8,6 @@
 
 
 
-![Discord Badge](https://media.discordapp.net/attachments/608711485849337856/812881183285313556/Anime_Gif_118.gif)
+![Discord Badge](https://media.discordapp.net/attachments/608711485849337856/817802470398754846/82ae936f1d71f57365469e33188e98aa.gif)
 
 
