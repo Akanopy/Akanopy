@@ -8,6 +8,6 @@
 
 
 
-![Discord Badge](https://media.discordapp.net/attachments/608711485849337856/818117396626800680/eyes9.gif)
+![Discord Badge](https://media.discordapp.net/attachments/608711485849337856/812881183285313556/Anime_Gif_118.gif)
 
 
