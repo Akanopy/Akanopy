@@ -17,8 +17,3 @@
 
 
 
-
-{{ ACCOUNT_AGE }}
-{{ ISSUES }}
-{{ PULL_REQUESTS }}
-{{ COMMITS }}
