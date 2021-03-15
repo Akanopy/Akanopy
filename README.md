@@ -11,7 +11,7 @@
 
 - ❤️ Şimdilik Anlatıcaklarım Bu kadar olsun :>
 
-- 🥳 Discord, Steam Hesaplarım : [Akano#8824](https://discord.com/channels/@me) [Steam](https://steamcommunity.com/profiles/76561199044085364)
+- 🌊 Discord, Steam Hesaplarım : [Akano#8824](https://discord.com/channels/@me) [Steam](https://steamcommunity.com/profiles/76561199044085364)
 
 
 
