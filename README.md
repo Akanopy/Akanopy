@@ -2,16 +2,14 @@
 
 
 
-### Herkese merhaba ben Akano 👋
-
-
-- 💬 Ben discord.js,Pyhton İle uğraşan birisiyim
-
-- ⚡ Github hesabıma elimden geldiğince kodlar,örnekler paylaşacağım
-
-- ❤️ Şimdilik Anlatıcaklarım Bu kadar olsun :>
+### merhaba ben akano o kdr 
 
 - 🌊 Discord, Steam Hesaplarım : [Akano#8824](https://discord.com/channels/@me) [Steam](https://steamcommunity.com/profiles/76561199044085364)
+
+
+
+
+
 
 
 
